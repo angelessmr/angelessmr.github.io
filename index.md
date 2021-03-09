@@ -1,7 +1,7 @@
 # **THE ARTROOM OF PURPLE ANGY**
 
 ## Ilustración digital y dibujo a mano alzada
-
+![img](https://github.com/angelessmr/angelessmr.github.io/blob/main/tittle%20ppa.jpg)
 >El arte es una forma de hacer, no una cosa que se hace - Anónimo.
 
 1. Un poco de historia.
